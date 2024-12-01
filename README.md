@@ -28,7 +28,8 @@ Completed a Senior Technician Degree in Automation and Industrial Computing at I
 
 **📫 Connect with Me**
 
-**LinkedIn:** Ahmed Antri
+**LinkedIn:** linkedin.com/in/ahmed-antri-7144482ba
+
 **Email:** ahmedantri1999@gmail.com
 
 **🌱 What I’m Working On**
